@@ -1,3 +1,7 @@
+![image](https://github.com/user-attachments/assets/f55fba5a-99eb-4db9-bd6a-104ca1cd5776)
+![image](https://github.com/user-attachments/assets/8dee1ca3-a97e-45a6-b7b5-58ea5e9ca3e3)
+
+
 目前尚有部分未翻譯，僅翻譯可直接查看的部分。
 
 ## 使用方法
